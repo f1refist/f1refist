@@ -1,3 +1,3 @@
-![hey its me its verity](https://64.media.tumblr.com/fa752d5c7f67f8f52871aeaec4d5a1bf/a45c8ccb6922bbbc-b1/s2048x3072/6a71dd65bd52e4373af3420df7c7751d81e5e18c.pnj)
-![hey its me its verity](https://64.media.tumblr.com/ac3d4165364d08ed893644725ea146c2/a45c8ccb6922bbbc-5a/s2048x3072/8de0381f03d082a0293599cb0cbb3348cdf0b49f.pnj)
-![hey its me its verity](https://64.media.tumblr.com/1673cf557081ca378a18e72848ce945f/a45c8ccb6922bbbc-92/s2048x3072/2d36427bedb2f5cc3f83a868930a59812765a72f.pnj)
+![hey its me its verity](https://64.media.tumblr.com/ab330f4bf550207b78e8afc92b08fd1a/1f9daf6b107a3d85-e9/s1280x1920/54f6f83608bb551201cdb831dada5b8b16c52da8.pnj)
+![hey its me its verity](https://64.media.tumblr.com/a6f4fbd65673e205ef537b9c67efd36e/1f9daf6b107a3d85-5c/s540x810/4d44bf30681c25348563a5e7d5297f24e0dd672f.pnj)
+![hey its me its verity](https://64.media.tumblr.com/dcbecc459767ac755833e044751b1568/1f9daf6b107a3d85-2b/s540x810/1f0af690d411ea319162255e9277d584c2856ec9.pnj)
